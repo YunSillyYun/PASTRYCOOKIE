@@ -1,0 +1,1 @@
+https://cdn.discordapp.com/attachments/1373726932910473388/1472305437750857969/88_Sem_Titulo_20260214155438.png?ex=699216ca&is=6990c54a&hm=b3bdee6ca6d51f8d19d810bfaaa9dff756f49a26f9ed2ee04bee0eaf52b1e072&
